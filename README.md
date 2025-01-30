@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **maiawad450@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/home?dmr=1&ec=wgc-drive-globalnav-goto](https://drive.google.com/drive/home?dmr=1&ec=wgc-drive-globalnav-goto)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1METjynFNSvQNxz2n0CxA6BcEPSA5R7RH/view?usp=sharing)
 
 
 
