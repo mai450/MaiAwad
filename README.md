@@ -9,7 +9,7 @@
 - 📫 How to reach me **maiawad450@gmail.com**
 
 
-- 📄 Know about my experiences <p align="left"> <a href="[https://www.w3schools.com/cpp/](https://drive.google.com/file/d/1GP9QiuZVw4nNAVqFPixEuO958EVpP_Vb/view?usp=sharing)" target="_blank" rel="noreferrer"> My Resume</a> </p>
+- 📄 Know about my experiences [My Resume](https://your-resume-link.com)
 
 
 
