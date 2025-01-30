@@ -9,7 +9,7 @@
 - 📫 How to reach me **maiawad450@gmail.com**
 
 
-- 📄 Know about my experiences [My Resume](https://your-resume-link.com)
+- 📄 Know about my experiences [My Resume]([https://your-resume-link.com](https://drive.google.com/file/d/1GP9QiuZVw4nNAVqFPixEuO958EVpP_Vb/view?usp=sharing))
 
 
 
